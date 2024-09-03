@@ -5,4 +5,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? - You can contact me on my personal number or through instagram. 
 - 😄 Pronouns: My pronouns are he/him. 
-- ⚡ Fun fact: There is no fun fact about me, i am a very boring person. 
+- ⚡ Fun fact: i am a very friendly person.  
